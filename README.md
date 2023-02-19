@@ -1,1 +1,1 @@
-# 1-month-lessons
+# 1-month
